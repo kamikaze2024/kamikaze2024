@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @kamikaze2024
+- 👋 Hi, I’m @kami!
 - 👀 I’m interested in coding! and health, wellness! 
 - 🌱 I’m currently learning creative computing 
 - 💞️ I’m looking to collaborate on many different kinds of projects 
